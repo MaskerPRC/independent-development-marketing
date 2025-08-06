@@ -16,7 +16,7 @@
 ## 👀欢迎加入微信交流群
 https://100.agitao.net/
 
-![100个AI产品交流群](https://github.com/user-attachments/assets/c92c830c-5422-464d-a516-c86656a15188)
+![100个AI产品交流群](https://proxy.agitao.me/img)
 
 ### 适用人群
 
